@@ -1,1 +1,3 @@
 Era uma vez uma canguru chamada Sally...
+
+Sally morava no interior da Austrália. Ela passava seus dias fazendo sempre as mesmas coisas: acordava cedo, procurava comida, conversava com os outros cangurus e descansava perto das árvores quando o calor ficava forte. Apesar de ter uma vida tranquila, Sally estava cansada daquela rotina repetitiva e sentia curiosidade sobre como era viver em outros lugares do mundo. Ela sonhava em conhecer cidades diferentes, fazer novos amigos e começar uma vida nova longe dali.
