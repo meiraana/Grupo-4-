@@ -1,3 +1,5 @@
 Era uma vez uma canguru chamada Sally...
 
 Sally morava no interior da Austrália. Ela passava seus dias fazendo sempre as mesmas coisas: acordava cedo, procurava comida, conversava com os outros cangurus e descansava perto das árvores quando o calor ficava forte. Apesar de ter uma vida tranquila, Sally estava cansada daquela rotina repetitiva e sentia curiosidade sobre como era viver em outros lugares do mundo. Ela sonhava em conhecer cidades diferentes, fazer novos amigos e começar uma vida nova longe dali.
+
+Depois de passar muito tempo pensando no que queria para sua vida, Sally tomou uma decisão importante: ela iria se mudar para Itajubá. Um papagaio viajante que havia passado pela Austrália contou histórias sobre a cidade, falando das montanhas, das ruas tranquilas e das pessoas simpáticas que moravam lá. Sally ficou encantada com a ideia de viver em um lugar tão diferente e começou a planejar sua viagem. Mesmo sabendo que sentiria saudade de casa, ela estava animada para começar uma nova aventura em Minas Gerais.
