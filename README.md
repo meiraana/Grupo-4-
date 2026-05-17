@@ -1,3 +1,5 @@
 Era uma vez uma canguru chamada Sally...
 
 Sally morava no interior da Austrália. Ela passava seus dias fazendo sempre as mesmas coisas: acordava cedo, procurava comida, conversava com os outros cangurus e descansava perto das árvores quando o calor ficava forte. Apesar de ter uma vida tranquila, Sally estava cansada daquela rotina repetitiva e sentia curiosidade sobre como era viver em outros lugares do mundo. Ela sonhava em conhecer cidades diferentes, fazer novos amigos e começar uma vida nova longe dali.
+
+O primeiro destino escolhido não poderia ser outro: um dos maiores e mais imponentes rios já descobertos pela humanidade, o lendário Rio BPS. Caminhando pelas margens e sentindo a brisa itajubense, Sally observava os capivaras locais e o movimento dos estudantes da Unifei, fascinada com o caos organizado daquela cidade que, de alguma forma, parecia o lugar perfeito para o início de sua grande aventura.
